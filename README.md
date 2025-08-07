@@ -1,4 +1,4 @@
-[img[Glorrrre.png]]
+
 
 [[Gloria Sabra|https://open.spotify.com/artist/3XUsigG3bucHrOBrwZVMQx]] was a Mexican-American singer, model, and actress whose creative presence touched the lives of many. She tragically passed away in Hollywood, Florida, during childbirth. Gloria developed a fatal blood clot during pregnancy, with worsening condition while she was in labor, and [[Gloria Sabra|https://open.spotify.com/artist/3XUsigG3bucHrOBrwZVMQx]] was pronounced dead shortly after giving birth.
 
