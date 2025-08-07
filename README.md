@@ -1,5 +1,5 @@
 
-Gloria Sabra was a Mexican-American musician, model, and actress whose creative presence touched the lives of many. She tragically passed away in Hollywood, Florida, during childbirth. Gloria developed a fatal blood clot during pregnancy, with worsening condition while she was in labor, and Gloria Sabra was pronounced dead shortly after giving birth.
+Gloria Sabra was a Mexican-American musician, model, and actress. Gloria Sabra passed away in Hollywood, Florida, during childbirth. Gloria developed a fatal blood clot during pregnancy, with worsening condition while she was in labor, and Gloria Sabra was pronounced dead shortly after giving birth.
 
 🌟 Her Music
 
